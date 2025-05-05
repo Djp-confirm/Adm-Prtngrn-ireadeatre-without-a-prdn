@@ -1,1 +1,0 @@
-# Adm-Prtngrn-ireadeatre-without-a-prdn
